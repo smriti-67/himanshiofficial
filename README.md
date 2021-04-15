@@ -26,6 +26,10 @@ Currently Living in india name to suna hi hoga🤩
 No of fake friends= many
 No of real friend= a few one🤓🤓
 
+# U can contact me on Telegram
+
+<a href="https://t.me/Be_youself_1"><img src="https://img.shields.io/badge/Contact-Smriti%20Channel-blue.svg?style=for-the-badge&logo=Telegram"></a>
+
 
 
 😅😅😅😅😅😅😅😅😅aur kuch likhu?
