@@ -2,7 +2,7 @@
 
 [![smriti_logo](https://telegra.ph/file/4c41ee23f57b357769270.jpg)](https://t.me/Be_youself_1)
 
-# 👉 I am ⭐ Smriti ⭐ 😅
+align="center"> 👉 I am ⭐Smriti⭐ 😅
 Recently I am  a student of 11(pcb )
  
 # Love to do poetry and painting 😁
