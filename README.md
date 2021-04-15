@@ -28,7 +28,7 @@ No of real friend= a few one🤓🤓
 
 # U can contact me on Telegram
 
-<a href="https://t.me/Be_youself_1"><img src="https://img.shields.io/badge/Contact-Smriti%20contactsmriti-blue.svg?style=for-the-badge&logo=Telegram"></a>
+<a href="https://t.me/Be_youself_1"><img src="https://img.shields.io/badge/Contact-Smriti%20directcontact-blue.svg?style=for-the-badge&logo=Telegram"></a>
 
 
 
